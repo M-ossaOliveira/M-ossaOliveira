@@ -1,5 +1,5 @@
 
-**Hi there 👋
+**Hi there** 👋
 
 I’ve been thinking about how to introduce myself. I feel like my life was on pause for several years.
 
@@ -9,7 +9,7 @@ For a long time, I felt like there was no turning back.
 
 But life is bigger than we can ever imagine, and somehow it brought me new dreams, new perspectives, new learning experiences and job opportunities.
 
-So here I am, trying to learn.🥹**
+**So here I am, trying to learn.🥹**
 
 
 <!--
